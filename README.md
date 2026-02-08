@@ -94,5 +94,3 @@ Xu, Y., Chen, C., Deng, W., Dai, L., & Yang, T. (2025). Spatial eco-socio-econom
 For questions, feedback, or collaborations, please contact:
 
 Yuhan Xu: [yxu899@gatech.edu]
-
-PhD student, School of City and Regional Planning, Georgia Institute of Technology
